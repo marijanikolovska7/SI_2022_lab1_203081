@@ -1,1 +1,1 @@
-# SI_2022_lab1_203081
+Marija Nikolovska 203081
